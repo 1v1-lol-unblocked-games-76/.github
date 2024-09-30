@@ -1,4 +1,4 @@
-## 1v1.lol Unblocked Games 76 - No Ads - Free
+## 1v1.lol Unblocked Games 76 - Play without Restriction
 
 Discover the action-packed world of 1v1.lol unblocked games 76, where fast-paced one-on-one matches await. Enjoy strategic gameplay with innovative building mechanics and extensive customization options.
 
